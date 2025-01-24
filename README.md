@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Srivid-work
+- 👋 Hi, I’m @Sri Vidya P
 - 👀 I’m interested in lots of fun stuff - Maths ofcourse riding on Indian Knowledge Systems
 - 🌱 I’m currently learning Latest Technologies
 - 💞️ I’m looking to collaborate on AI and ML projects
